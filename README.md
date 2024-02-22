@@ -15,3 +15,9 @@ America doesn't have health insurance.
 
 If I don't run for president, we'll all be OK.
 - Joe Biden
+
+You're in pretty good shape for the shape you are in.
+- Dr. Seuss
+
+Adults are obsolete children.
+- Dr. Seuss
