@@ -3,3 +3,9 @@ Lord, make me an instrument of your peace. Where there is hatred, let me sow lov
 
 Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win.
 - Sun Tzu
+
+I used to stutter really badly. Everybody thinks it's funny. And it's not funny. It's not.
+The greatest gift is the ability to forget - to forget the bad things and focus on the good.
+America doesn't have health insurance.
+If I don't run for president, we'll all be OK.
+- Joe Biden
